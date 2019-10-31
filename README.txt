@@ -1,0 +1,1 @@
+Örnek videosu izlemek için: https://youtu.be/IKbTDeu8wqw
